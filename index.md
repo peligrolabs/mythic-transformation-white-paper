@@ -100,22 +100,28 @@ This paper concludes that <i>the arts are a forgotten but potent vessel of soul-
 
 ### 1. Introduction
 
-<b>The Wasteland of Mind, and the Forgotten Springs of Story</b>
+<i><b>The Wasteland of Mind, and the Forgotten Springs of Story</b></i>
 
 In the modern age, healing has been largely entrusted to the clinical and the conscious.
 Psychotherapy, cognitive restructuring, and behavioral interventions have sought to remedy the fractures of the human soul by applying the scalpel of reason to the wounds of the psyche. These methods have brought measurable benefit to many—and yet, despite the proliferation of therapeutic modalities, the collective spirit continues to ache beneath the surface. A subtler, deeper fragmentation persists, eluding the reach of conscious analysis alone.
 
 What has been forgotten in the march of modernity is the ancient power of Story.
-Long before the advent of clinical psychology, long before humanity even knew how to write, we healed and grew through the myths we told, the sagas we lived, the archetypal battles we watched unfold across the flickering fires of imagination. The soul has always hungered for meaning—not manufactured meaning, but mythic meaning—a remembrance of its place in the great architecture of existence.
+Long before the advent of clinical psychology, long before humanity even knew how to write, we healed and grew through the myths we told, the sagas we lived, the archetypal battles we watched unfold across the flickering fires of imagination. The soul has always hungered for meaning—not manufactured meaning, but <i>mythic meaning</i>—a remembrance of its place in the great architecture of existence.
 
-Modern therapeutic models often overlook the fact that the human mind is not merely a machine of logic; it is a myth-making vessel. It is structured not in rows of rational propositions but in tapestries of symbol, dream, and archetype. When the symbolic nourishment of myth is lost—or worse, when false myths take root—the psyche withers, unable to fully mend itself through conscious willpower alone.
+Modern therapeutic models often overlook the fact that the human mind is not merely a machine of logic; it is a <i>myth-making</i> vessel. It is structured not in rows of rational propositions but in tapestries of symbol, dream, and archetype. When the symbolic nourishment of myth is lost—or worse, when false myths take root—the psyche withers, unable to fully mend itself through conscious willpower alone.
 
-This white paper proposes a revival of an ancient pathway: subconscious mythic transformation.
-It is the process by which a soul, immersed deeply in a narrative patterned upon true mythic structures, undergoes a healing and a transcendence beyond the grasp of its ordinary identity.
-Unlike clinical interventions which work through direct analysis, this path works through emotional participation, imaginative absorption, and silent alchemical transfiguration.
+This white paper proposes a revival of an ancient pathway: <b>subconscious mythic transformation</b>.<br>
+It is the process by which a soul, immersed deeply in a narrative patterned upon true mythic structures, undergoes a healing and a transcendence beyond the grasp of its ordinary identity.<br>
+Unlike clinical interventions which work through direct analysis, this path works through <i>emotional participation, imaginative absorption, and silent alchemical transfiguration</i>.
 
-But not all stories can serve this sacred function.
-Only those myths aligned with the deepest architectures of Reality—those that mirror the primordial dance of Light and Dark, Life and Death, Unity and Separation—can act as true medicine to the soul. This paper will explore not only how subconscious mythic healing occurs, but why the mythic structure must be True for the healing to endure.
+But not all stories can serve this sacred function.<br>
+Only those myths aligned with the deepest architectures of Reality—those that mirror the primordial dance of Light and Dark, Life and Death, Unity and Separation—can act as true medicine to the soul. This paper will explore not only <i>how</i> subconscious mythic healing occurs, but <i>why</i> the mythic structure must be True for the healing to endure.
 
 In an age of rising psychic fragmentation, the forgotten springs of Story call to us again.
-It is time to remember that healing is not only a matter of analysis, but of mythic remembrance—and that the soul, when given the right symbols, can find its way home through paths unseen.
+It is time to remember that healing is not only a matter of analysis, but of <i>mythic remembrance</i>—and that the soul, when given the right symbols, can find its way home through paths unseen.
+
+---
+
+### 2. The Psychological Framework
+
+<i><b>The Web of Archetypes and the Chains of Complexes</b></i>
