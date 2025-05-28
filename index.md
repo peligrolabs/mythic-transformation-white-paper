@@ -596,6 +596,10 @@ Emotionally charged constellations within the personal unconscious,
 organized around an archetype, that influence thought and behavior unconsciously.
 Complexes act as partial identities that can possess the individual until they are transcended or integrated.
 
+<b>Archetypal Possession</b>
+
+The state in which an individual’s ego-consciousness becomes overwhelmed, eclipsed, or subsumed by a dominant archetypal force—often resulting in behaviors, thoughts, or emotional states that reflect the patterns, personas, or energies of the archetype itself. While sometimes catalyzing spiritual insight or transformation, archetypal possession can also lead to psychological imbalance, grandiosity, or disconnection from ordinary reality if not integrated with grounded awareness and discernment. True mythic transformation requires not the suppression of archetypal energies, but their conscious integration within a stable, centered Self.
+
 <b>Soul Shard</b>
 
 A fragment of the original unified Soul, separated through trauma, profound grief, or existential rupture.
