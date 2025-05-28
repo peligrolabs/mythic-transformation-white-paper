@@ -60,8 +60,9 @@ both seen and unseen, who guided my hands and heart through the veils of dream a
 * <b>J.K. Rowling</b>, who carried the alchemical fire into the hearts of a new generation.
 * <b>George R.R. Martin</b>, who showed that even in the darkest winters, the seeds of light endure.
 * <b>Jordan B. Peterson</b>, who defended the necessity of meaning, myth, and responsibility in the face of chaos.
-* <b>Sam Harris</b>, who sought the truth of consciousness beyond the veils of dogma and fear.
+* <b>Ryan Holiday</b>, torchbearer of modern Stoicism, who rekindled ancient virtue for a restless age and showed that true strength is found in stillness, service, and self-mastery.
 * <b>Tim Ferriss</b>, who opened doors to mastery and inner liberation through disciplined experimentation.
+* <b>Sam Harris</b>, who sought the truth of consciousness beyond the veils of dogma and fear.
 * <b>Leo Tolstoy</b>, who revealed that the kingdom of God is within, and that love alone can redeem the world.
 * <b>Mooji</b>, who spoke directly from the Silence behind all identity and form.
 * <b>Ram Dass</b>, who reminded us to be here now and walk one another home.
