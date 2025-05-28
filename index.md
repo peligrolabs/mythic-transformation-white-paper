@@ -693,3 +693,5 @@ Come home, beloved soul.<br>
 Come home.
 
 ---
+
+Copyright &copy; 2025 [Peligro Labs, LLC](https://peligrolabs.com/).
