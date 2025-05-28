@@ -83,7 +83,7 @@ and serve as a small stone laid upon the rising bridge to the New Dawn.<br>
 
 In an age where clinical and conscious approaches to healing dominate the psychological landscape, a forgotten pathway calls from the shadows—the path of <b>subconscious mythic transformation</b>. This white paper explores the mechanism by which human beings may experience deep psychological healing and spiritual liberation through <i>transcendence of archetypal complexes</i>, not through analysis, but through <i>embodied engagement</i> with art, story, and symbolic play.
 
-Drawing on Jungian psychology, Eastern non-dual philosophy, and the living current of myth, we argue that profound shifts in the psyche can occur when an individual becomes emotionally and imaginally immersed in stories that <i>mirror the soul’s true journey</i>—particularly those aligned with the <b>universal myth of Light and Dark, Life and Death</b>.
+Drawing on Jungian psychology, Eastern non-dual philosophy, and the living current of myth, we argue that profound shifts in the psyche can occur when an individual becomes emotionally and imaginally immersed in stories that <i>mirror the soul’s true journey</i>—particularly those aligned with the <b>universal myth of Light and Dark, Life and Death, Unity and Separation</b>.
 
 Not all stories heal. For myth to function as medicine, it must be <b>ontologically aligned</b> with the soul’s deepest architecture. It must echo the eternal forms. This paper posits that <i>only stories rooted in a culture’s authentic origin myth—or in the cosmos’ Proto-Myth itself</i>—can act as effective tools for subconscious healing. Stories that are fragmented, nihilistic, or falsely constructed upon poisoned mythic structures may instead deepen psychic dissonance.
 
