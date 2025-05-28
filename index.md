@@ -51,21 +51,20 @@ April 2025
 To the keepers of the sacred fire,<br>
 both seen and unseen, who guided my hands and heart through the veils of dream and memory—
 
-* <b>J.R.R. Tolkien</b>, who showed that myth is not invention but sacred recovery;
-* <b>C.S. Lewis</b>, who revealed that the deepest truths are hidden in the simplest stories;
-* <b>Carl Gustav Jung</b>, who uncovered the architecture of the soul’s hidden kingdoms;
-* <b>Joseph Campbell</b>, who mapped the common journey of all heroes back to the Source;
-* <b>Michael Meade</b>, who sang the ancient songs of the soul’s forgetting and return;
-* <b>Paul Chek</b>, who taught that healing begins with the remembrance of Wholeness;
-* <b>J.K. Rowling</b>, who carried the alchemical fire into the hearts of a new generation;
-* <b>George R.R. Martin</b>, who showed that even in the darkest winters, the seeds of light endure;
-* <b>Jordan B. Peterson</b>, who defended the necessity of meaning, myth, and responsibility in the face of chaos;
-* <b>Sam Harris</b>, who sought the truth of consciousness beyond the veils of dogma and fear;
-* <b>Tim Ferriss</b>, who opened doors to mastery and inner liberation through disciplined experimentation;
-* <b>Leo Tolstoy</b>, who revealed that the kingdom of God is within, and that love alone can redeem the world;
-* <b>Mooji</b>, who spoke directly from the Silence behind all identity and form;
-* <b>Ram Dass</b>, who reminded us to be here now and walk one another home;
-Paramahansa Yogananda, who brought the light of the East to the West and taught the soul to see with divine eyes.
+* <b>J.R.R. Tolkien</b>, who showed that myth is not invention but sacred recovery.
+* <b>C.S. Lewis</b>, who revealed that the deepest truths are hidden in the simplest stories.
+* <b>Carl Gustav Jung</b>, who uncovered the architecture of the soul’s hidden kingdoms.
+* <b>Joseph Campbell</b>, who mapped the common journey of all heroes back to the Source.
+* <b>Michael Meade</b>, who sang the ancient songs of the soul’s forgetting and return.
+* <b>Paul Chek</b>, who taught that healing begins with the remembrance of Wholeness.
+* <b>J.K. Rowling</b>, who carried the alchemical fire into the hearts of a new generation.
+* <b>George R.R. Martin</b>, who showed that even in the darkest winters, the seeds of light endure.
+* <b>Jordan B. Peterson</b>, who defended the necessity of meaning, myth, and responsibility in the face of chaos.
+* <b>Sam Harris</b>, who sought the truth of consciousness beyond the veils of dogma and fear.
+* <b>Tim Ferriss</b>, who opened doors to mastery and inner liberation through disciplined experimentation.
+* <b>Leo Tolstoy</b>, who revealed that the kingdom of God is within, and that love alone can redeem the world.
+* <b>Mooji</b>, who spoke directly from the Silence behind all identity and form.
+* <b>Ram Dass</b>, who reminded us to be here now and walk one another home.
 * <b>Paramahansa Yogananda</b>, who brought the light of the East to the West and taught the soul to see with divine eyes.
 * <b>Osho</b>, whose fierce laughter shattered illusion, and whose silence spoke the forgotten language of the soul.
 * <b>Chögyam Trungpa</b>, who danced with chaos, wielded the sword of crazy wisdom, and carved the pathless path through the heart of ego.
