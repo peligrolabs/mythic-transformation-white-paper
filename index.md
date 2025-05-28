@@ -502,6 +502,7 @@ The act of undergoing transformation through emotional and symbolic engagement w
 without needing to consciously understand or interpret it—thus allowing the mythic forces to act upon the soul at a deeper level.
 
 <b>Ontology</b>
+
 The branch of philosophy concerned with the nature of being, existence, and reality. Ontology asks the fundamental question: “What is?”—seeking to define what entities exist, how they can be categorized, and what it means for something to “be” at all. In spiritual and mythopoetic contexts, ontology explores the structures of consciousness, the dimensions of soul, and the layered realities that shape both inner and outer worlds.
 
 ---
