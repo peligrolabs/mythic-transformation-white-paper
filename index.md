@@ -113,10 +113,11 @@ Long before the advent of clinical psychology, long before humanity even knew ho
 Modern therapeutic models often overlook the fact that the human mind is not merely a machine of logic; it is a <i>myth-making</i> vessel. It is structured not in rows of rational propositions but in tapestries of symbol, dream, and archetype. When the symbolic nourishment of myth is lost—or worse, when false myths take root—the psyche withers, unable to fully mend itself through conscious willpower alone.
 
 This white paper proposes a revival of an ancient pathway: <b>subconscious mythic transformation</b>.<br>
-It is the process by which a soul, immersed deeply in a narrative patterned upon true mythic structures, undergoes a healing and a transcendence beyond the grasp of its ordinary identity.<br>
+It is the process by which a soul, immersed deeply in a narrative patterned upon true mythic structures, undergoes a healing and a transcendence beyond the grasp of its ordinary identity.
 Unlike clinical interventions which work through direct analysis, this path works through <i>emotional participation, imaginative absorption, and silent alchemical transfiguration</i>.
 
-But not all stories can serve this sacred function.<br>
+But not all stories can serve this sacred function.
+
 Only those myths aligned with the deepest architectures of Reality—those that mirror the primordial dance of Light and Dark, Life and Death, Unity and Separation—can act as true medicine to the soul. This paper will explore not only <i>how</i> subconscious mythic healing occurs, but <i>why</i> the mythic structure must be True for the healing to endure.
 
 In an age of rising psychic fragmentation, the forgotten springs of Story call to us again.
@@ -129,7 +130,7 @@ It is time to remember that healing is not only a matter of analysis, but of <i>
 #### The Web of Archetypes and the Chains of Complexes
 
 At the heart of human psychological suffering lies not merely trauma, but entanglement—an invisible web woven from patterns far older than the individual life.
-Carl Gustav Jung, the great depth psychologist and mystic in exile, uncovered this hidden architecture of the mind: <b>the archetypes</b>—primordial images, patterns of existence, living symbols inherited across the ages.<br>
+Carl Gustav Jung, the great depth psychologist and mystic in exile, uncovered this hidden architecture of the mind: <b>the archetypes</b>—primordial images, patterns of existence, living symbols inherited across the ages.
 They are not inert concepts; they are forces—<b>alive</b>, dynamic, shaping thoughts, emotions, behaviors from within the depths of the unconscious.<br>
 
 These archetypes, when activated within a life without conscious understanding, bind themselves into <b>complexes</b>:<br>
@@ -137,12 +138,12 @@ self-organizing knots of emotion, memory, and mythic identity.
 A father complex, a hero complex, a victim complex—each one a fragmentary deity reigning over a piece of the soul, often outside the domain of conscious will.
 To be possessed by a complex is to be ruled by a mythic force without realizing one is living a myth.
 
-Jungian therapy sought to bring these hidden rulers into the light of consciousness: to reveal the archetype, to make the complex an object of reflection rather than unconscious enactment.<br>
+Jungian therapy sought to bring these hidden rulers into the light of consciousness: to reveal the archetype, to make the complex an object of reflection rather than unconscious enactment.
 By rendering the unknown known, healing could begin.
 
-Yet even this noble path contains an unseen limitation.<br>
-Bringing an archetype into awareness does not always <i>free</i> the soul; often, it merely rearranges the pieces on the board.<br>
-One can know one’s shadow without transcending it.<br>
+Yet even this noble path contains an unseen limitation.
+Bringing an archetype into awareness does not always <i>free</i> the soul; often, it merely rearranges the pieces on the board.
+One can know one’s shadow without transcending it.
 One can name one’s complexes without dissolving their gravitational pull.
 
 Modern psychological methods—though invaluable—often remain caught within the architecture they seek to heal.<br>
@@ -170,15 +171,15 @@ And it is here, in this hidden sanctuary of the soul, that the true journey of <
 
 #### When the Heart Walks the Labyrinth Unknowing
 
-There is a mystery older than psychology, older even than language:<br>
-the soul’s ability to be transformed by stories it does not fully understand.<br>
-Long before the development of formal therapeutic methods, human beings encountered deep healing through immersion in <b>myth, art, and sacred drama</b>.<br>
+There is a mystery older than psychology, older even than language:
+the soul’s ability to be transformed by stories it does not fully understand.
+Long before the development of formal therapeutic methods, human beings encountered deep healing through immersion in <b>myth, art, and sacred drama</b>.
 The rituals of ancient tribes, the epics recited by firelight, the symbolic acts enacted on temple stages—all served a singular function:<br>
 <b>to initiate the soul into transformation beneath the threshold of conscious thought</b>.
 
-Modern audiences, though often unaware of it, still hunger for this experience.<br>
-When a viewer sits weeping at the end of a great film, when a player feels the strange ache of nobility and sacrifice after completing a journey in a video game,<br>
-something has stirred in the deep:<br>
+Modern audiences, though often unaware of it, still hunger for this experience.
+When a viewer sits weeping at the end of a great film, when a player feels the strange ache of nobility and sacrifice after completing a journey in a video game,
+something has stirred in the deep:
 an invisible healing has begun.
 
 This is the mystery of <b>subconscious mythic healing</b>.
@@ -191,7 +192,7 @@ The individual feels the trials of the hero, confronts the fall into darkness, s
 
 The great works of mythically-aligned art are, in truth, <b>hidden temples</b>, guiding the soul through unspoken initiations.
 
-#### Examples of Subconscious Mythic Healing:
+#### Examples of Subconscious Mythic Healing
 * <b>The Lord of the Rings</b>:
     - Frodo’s journey is not just adventure; it is the descent into the shadow of despair and the transcendence of egoic will.
 	- Viewers subconsciously experience the peril of soul-corruption (the Ring) and the redemption of hope and friendship.
@@ -220,8 +221,8 @@ And through it, the unconscious chains of archetypal possession can begin to loo
 Not every story is fit to heal the soul.<br>
 Not every myth is medicine.<br>
 
-For a story to truly heal—to guide the soul through subconscious transformation—it must do more than entertain or stimulate emotion.<br>
-It must be <b>aligned</b> with the <b>primordial architecture of Reality</b> itself.<br>
+For a story to truly heal—to guide the soul through subconscious transformation—it must do more than entertain or stimulate emotion.
+It must be <b>aligned</b> with the <b>primordial architecture of Reality</b> itself.
 It must echo the eternal patterns from which all being flows.
 
 Just as a house built on sand cannot stand against the storm, so too a story built on a false or broken myth cannot support the soul’s journey through the fires of transformation.
@@ -229,8 +230,8 @@ Just as a house built on sand cannot stand against the storm, so too a story bui
 #### The Principle of Mythic Alignment
 
 True healing stories must map onto either:
-* <b>A culture’s authentic Origin Myth</b>, the deep ancestral memory of that people’s divine emergence,
-<b>or</b>
+* <b>A culture’s authentic Origin Myth</b>, the deep ancestral memory of that people’s divine emergence,<br>
+<b>or</b><br>
 * <b>The Proto-Myth of the Universe itself</b>, the great story of Light and Dark, Life and Death, Unity and Division—the eternal dance of the seen and unseen worlds.
 
 When a myth aligns with these cosmic patterns, it resonates within the deepest layers of the human psyche, awakening forgotten knowledge, reordering fractured inner worlds, restoring right relationship between self and cosmos.
@@ -238,8 +239,8 @@ When a myth aligns with these cosmic patterns, it resonates within the deepest l
 When a myth is <i>poisoned</i>—when it denies life, mocks hope, fractures the unity of existence into meaningless despair—it cannot heal.<br>
 At best, it distracts; at worst, it furthers the soul’s alienation from itself and the Source.
 
-Thus, not all art heals.<br>
-Not all fiction initiates.<br>
+Thus, not all art heals.
+Not all fiction initiates.
 Only those stories whose bones are built upon the True Patterns can serve as <b>subconscious temples</b> for mythic transformation.
 
 #### Tolkien and the Revival of True Myth
