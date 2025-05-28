@@ -625,7 +625,7 @@ A surreal mythopoetic RPG exploring ego death, alternate realities, and the limi
 
 ---
 
-Anime and Manga:
+<b>Anime and Manga</b>:
 * <i>Demon Slayer (Kimetsu no Yaiba)</i><br>
 The soul’s pure war against despair, fueled by love, sacrifice, and the transcendence of vengeance.
 * <i>Hunter x Hunter (Greed Island Arc)</i><br>
