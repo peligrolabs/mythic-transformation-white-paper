@@ -564,3 +564,63 @@ A card-based retelling of mythic battles across multiverses—sagas of planeswal
 A hidden mythos where memory, fate, and ritualistic battle serve as metaphors for spiritual mastery and confrontation with inner demons.
 
 ---
+
+#### Appendix B: Glossary of Key Terms
+
+This glossary provides sacred definitions for key terms introduced in the Scholar-Mystic White Paper,
+offering readers a shared lexicon for journeying into the realms of subconscious mythic transformation.
+
+<b>Subconscious Mythic Transformation</b>
+
+The hidden process by which the soul undergoes healing, growth, and transcendence through deep emotional and symbolic engagement with mythically structured art and story—without requiring conscious analysis or traditional therapeutic intervention.
+
+<b>Mythic Alignment</b>
+
+The principle that for a story or artistic work to catalyze true psychological and spiritual healing,
+its structure must resonate with the deep archetypal patterns of Reality—such as Light and Dark, Life and Death, Unity and Separation—and/or the authentic Origin Myth of a culture.
+
+<b>Proto-Myth</b>
+
+The eternal mythic structure that underpins all creation across time and space:
+the original dance of Light emerging from Darkness, of Life arising from Death, of Unity descending into Division and seeking its return.
+It is the myth beyond myths, the sacred story whispered by the very soul of the universe.
+
+<b>Archetypes</b>
+
+Primordial, universal patterns or symbolic images that reside in the collective unconscious of humanity.
+They are not created by individuals but inherited—forms such as the Hero, the Shadow, the Mother, the Sage—that shape perception, thought, and behavior at a deep psychological level.
+
+<b>Complexes</b>
+
+Emotionally charged constellations within the personal unconscious,
+organized around an archetype, that influence thought and behavior unconsciously.
+Complexes act as partial identities that can possess the individual until they are transcended or integrated.
+
+<b>Soul Shard</b>
+
+A fragment of the original unified Soul, separated through trauma, profound grief, or existential rupture.
+Soul Shards often become trapped within psychological complexes, deepening their possessive power.
+True healing of the Soul involves not merely analyzing these complexes but remembering, retrieving, and reintegrating the lost fragments of Self into a restored wholeness.
+
+<b>Sacred Storytelling</b>
+
+The intentional crafting of narrative as a means of guiding the soul through symbolic trials of death, rebirth, sacrifice, and illumination—mirroring the true mythic journey of existence itself.
+
+<b>True Myth vs. Poisoned Myth</b>
+
+True Myth refers to stories that align with the Proto-Myth or a culture’s authentic origin myth,
+supporting psychological integration, spiritual ascent, and mythic remembrance.
+Poisoned Myth refers to stories that distort, fragment, or deny these sacred patterns,
+often leading to spiritual disorientation, nihilism, and psychic disintegration.
+
+<b>Transcendence Beyond Archetypes</b>
+
+The spiritual realization that ultimate liberation is found not merely by rearranging or mastering archetypal energies,
+but by awakening to the Eternal Self—the pure, silent Awareness prior to all forms, myths, and identities.
+
+<b>Subconscious Ritual Participation</b>
+
+The act of undergoing transformation through emotional and symbolic engagement with a story or artistic work,
+without needing to consciously understand or interpret it—thus allowing the mythic forces to act upon the soul at a deeper level.
+
+---
