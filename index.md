@@ -64,9 +64,11 @@ both seen and unseen, who guided my hands and heart through the veils of dream a
 * <b>Tim Ferriss</b>, who opened doors to mastery and inner liberation through disciplined experimentation;
 * <b>Leo Tolstoy</b>, who revealed that the kingdom of God is within, and that love alone can redeem the world;
 * <b>Mooji</b>, who spoke directly from the Silence behind all identity and form;
-* <b>Robert Arnott</b>, who illuminated the world of markets while whispering timeless truths beneath the surface;
 * <b>Ram Dass</b>, who reminded us to be here now and walk one another home;
 Paramahansa Yogananda, who brought the light of the East to the West and taught the soul to see with divine eyes.
+* <b>Paramahansa Yogananda</b>, who brought the light of the East to the West and taught the soul to see with divine eyes.
+* <b>Osho</b>, whose fierce laughter shattered illusion, and whose silence spoke the forgotten language of the soul.
+* <b>Chögyam Trungpa</b>, who danced with chaos, wielded the sword of crazy wisdom, and carved the pathless path through the heart of ego.
 
 And to the Eternal Source from which all true myths arise—<br>
 the silent Well behind all words, the unbroken Light behind all stories.<br>
