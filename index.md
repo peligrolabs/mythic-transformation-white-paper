@@ -245,11 +245,11 @@ Only those stories whose bones are built upon the True Patterns can serve as <b>
 
 #### Tolkien and the Revival of True Myth
 
-Few modern creators understood this as deeply as <b>J.R.R. Tolkien</b>.<br>
+Few modern creators understood this as deeply as <b>J.R.R. Tolkien</b>.
 In crafting <i>The Lord of the Rings</i> and <i>The Silmarillion</i>, Tolkien did not merely invent fantasy worlds; he sought to rebuild the <b>True Mythos</b> of the West—an act of sacred recovery.
 
-Tolkien believed that myths were not lies but echoes of a greater truth.<br>
-That fairy-stories, rightly told, were vessels carrying the weight of ultimate reality.<br>
+Tolkien believed that myths were not lies but echoes of a greater truth.
+That fairy-stories, rightly told, were vessels carrying the weight of ultimate reality.
 In a time when industrial modernity sought to sever the human spirit from its ancient roots, Tolkien returned to the wisdom of myth:
 * Light born in darkness,
 * Kings fallen and rising again,
@@ -500,6 +500,9 @@ but by awakening to the Eternal Self—the pure, silent Awareness prior to all f
 
 The act of undergoing transformation through emotional and symbolic engagement with a story or artistic work,
 without needing to consciously understand or interpret it—thus allowing the mythic forces to act upon the soul at a deeper level.
+
+<b>Ontology</b>
+The branch of philosophy concerned with the nature of being, existence, and reality. Ontology asks the fundamental question: “What is?”—seeking to define what entities exist, how they can be categorized, and what it means for something to “be” at all. In spiritual and mythopoetic contexts, ontology explores the structures of consciousness, the dimensions of soul, and the layered realities that shape both inner and outer worlds.
 
 ---
 
